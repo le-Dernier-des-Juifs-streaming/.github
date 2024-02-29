@@ -2,9 +2,9 @@ Le Dernier des Juifs Streaming vf les films et les livres tiennent une partie de
 
 ** DERNIÈRE MISE À JOUR : 29 FÉVRIER 2024.**
 
-Regarder ➡ [Le Dernier des Juifs VOIR STREAMING](https://jm.filmy-zilla.lat/movie/958855)
+Regarder ➡ [Le Dernier des Juifs VOIR STREAMING](https://jm.filmy-zilla.lat/fr/movie/958855)
 
-Telecharger ➡ [Le Dernier des Juifs FILM COMPLETHD](https://jm.filmy-zilla.lat/movie/958855)
+Telecharger ➡ [Le Dernier des Juifs FILM COMPLETHD](https://jm.filmy-zilla.lat/fr/movie/958855)
 
 Sortie du film Le Dernier des Juifs : Date de sortie?
 La suite d’Le Dernier des Juifs, a été confirmé un mois après la sortie du premier film au cinéma. Le 19 mai 2023, Le Dernier des Juifs 2 avait été confirmé. Quand pourrons-nous le voir en salle ? Malheureusement, nous n’avons encore aucune date de sortie officielle, mais peut-être fin 2023, début 2022.
